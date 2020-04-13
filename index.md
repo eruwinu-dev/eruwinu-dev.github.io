@@ -12,6 +12,9 @@ June 14, 2019 sila naging sila.
 ### Ano yung gusto nila sa isa't isa?
 Gusto ni Erwin kay Trish ay yung mabait at committed at understanding siya kay Erwin, kahit imperfect si Erwin. Gusto rin niya yung belly ni Trish na palaging hinihipan para magkaroon ng sound. Kay Trish naman, gusto niya kay Erwin ay yung pogi at malaki tiyan dahil yun yung sign na love na love niya si Erwin. Ginagawa rin niya mga projects ni Trish at nagtututor kay Trish so siguro plus points din yun.
 
+### Ano na mga napagdaanan nila?
+Marami na silang napagdaanan. Marami nang natutunan sila sa isa't isa, at sobrang daming character development ang natutunan ni Erwin kay Trish. Natuto si Erwin na maging patient, maging understanding, at mas maging loving partner para kay Trish sa 22 months and counting nilang pagsasama. 
+
 ### Ano love language nilang dalawa?
 Receiving gifts ang kay Trish. Dapat surprise. Kaya ito, sinurprise ko siya ng website. Tanginang COVID na yan di kami together physically. Kay Erwin naman, words of affirmation. Kaya papansin palagi si Erwin kay Trish. In the end, gusto nila ng quality time with each other.
 
