@@ -1,4 +1,13 @@
-Surprise!
+Surprise! Ito ulit!
+
+### 23 months na sila Trish at Erwin! Ano kaya sikreto nila?
+Pasensya at pagkain. Ng chicken wings at beef strips sa samgyupsal. Genuine love and understanding for each other. Also constant communication at ang pag-alala sa mga love languages ng isa't isa.
+
+Happy monthsary! 1 month na lang 2 years na. Sobrang tagal na natin. Sobrang dami na nating napagdaanan na masasaya at malulungkot na mga experiences. Salamat dahil ikaw ang nakasama ko sa mga iyon. Hindi ko ipagpapalit ang mga memories natin ang mga future na memories natin together for anything else. I miss you Trish. I can't wait to be with you soon. Ingat palagi. I love you.
+
+### Basahing mabuti.
+May surprise nanaman ako.
+tiny.cc/ + The Office Season 9 Episode 22/23 Collective Episode Title (small caps) + month and day ngayon (ex 0514) + trisherwin 
 
 ### Paano nagsimula?
 Nakipagbet si Erwin na magkakajowa siya before grumaduate. Akala ni Erwin na may gusto sakanya si Trish nung nagsend siya ng meme. Yun pala si Erwin ang may gusto kay Trish. Naghoholding hands nga sila kahit di pa official eh.
